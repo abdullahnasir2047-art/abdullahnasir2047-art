@@ -1,4 +1,4 @@
-### Hi there 👋 I'm [Abdullah Nasir]
+### Hi there 👋 I'm Abdullah Nasir
 
 **`Aspiring Developer | Lifelong Learner`**
 
